@@ -1,0 +1,1 @@
+# hw6_env_06_namudarbas
